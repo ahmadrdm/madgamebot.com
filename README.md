@@ -1,0 +1,2 @@
+# madgamebot.com
+korupsi 
